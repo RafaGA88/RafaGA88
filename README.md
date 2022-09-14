@@ -1,4 +1,4 @@
-## Estudante de Ciência da Computação e Hacking ! Futuro Pentester 😃. 
+## Estudante de Ciência da Computação e Hacking ! 
 <br/>
 <div align="left">
   <a href="https://github.com/RafaGA88">
