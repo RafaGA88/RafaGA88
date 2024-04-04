@@ -1,4 +1,4 @@
-## Estudante de Ciência da Computação e Hacking ! 
+## Computer Science Student and Full Stack Developer! 
 <br/>
 <div align="left">
   <a href="https://github.com/RafaGA88">
